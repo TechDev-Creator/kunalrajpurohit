@@ -1,2 +1,2 @@
-# kunalrajpurohit.github.io
+# kunalrajpurohit.com
  
